@@ -1,6 +1,7 @@
-# FREE RDP WINDOWS SERVER! EKLESIA TOP
 
+# IF github ERROR update link is in the description column
 # BILA github ERROR update link ada di kolom diskripsi
+
 # subscribe chanel youtube : EKLESIA TOP  (biar berkah )
 # link subscribe http://bit.ly/EklesiaTop
 
